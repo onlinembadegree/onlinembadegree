@@ -14,5 +14,5 @@ Here are some ideas to get you started:
 💻 1. https://onlinembadegree.in/liverpool-university/
 💻 2. https://onlinembadegree.in/deakin-university/
 💻 3. https://onlinembadegree.in/golden-gate-university/
-- 💻 For any query regarding Online Degree: https://onlinembadegree.in
+💻 For any query regarding Online Degree: https://onlinembadegree.in
 -->
