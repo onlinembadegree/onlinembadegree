@@ -16,6 +16,7 @@ Here are some ideas to get you started:
   -   💻 3. <a href="https://onlinembadegree.in/golden-gate-university/">Golden Gate University</a>
    -   💻 For any query regarding Online Degree: **https://onlinembadegree.in**
 -    **Many Universities In India for Graduation and Post Graduation**
+-    💻 <a href="https://onlinembadegree.in/narsee-monjee-institute-of-management-studies/">Narsee Monjee Institute of Management Studies</a>
  -   💻 <a href="https://onlinembadegree.in/online-mba-with-manipal-university-jaipur/">Online Manipal University</a>
   -   💻 <a href="https://onlinembadegree.in/sikkim-manipal-university/">Sikkim Manipal University</a>
   -   💻 <a href="https://onlinembadegree.in/online-mba-with-kurukshetra-university/">Kurukshetra University</a>
