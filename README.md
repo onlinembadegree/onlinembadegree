@@ -8,7 +8,7 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on ... Neil Patel for SEO Support
 - 🤔 I’m looking for help with ... Online Education, Online Degree
 - 💬 Ask me about ... SEO, Wordpress, Digital Marketing, 
-- 📫 How to reach me: ...sachin.peoplesmart@gmail.com
+- 📫 How to reach me: ...sachin.edugrad@gmail.com
 - **💻 If You Want to Study Abroad 💻 We have a Best Online Universities**
  
 -   💻 1. <a href="https://onlinembadegree.in/liverpool-university/">Liverpool University</a>
